@@ -24,7 +24,7 @@ I'm not a fan of old legacy tons of random code but can analyse it and update al
   
 📫 How to reach me:  
 - If you want to hire me - [Contact me via Upwork](https://www.upwork.com/workwith/bohdanp23)
-
+- Also you can contact me via [LinkedIn](https://www.linkedin.com/in/bohdan-parkhomchuk-8682b143/)
 
 
 <!---
